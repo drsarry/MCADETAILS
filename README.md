@@ -1,2 +1,4 @@
 # MCADETAILS
 This contains student details
+HI EVERYONE 😁
+MY FAVORITE PERSON IN THE CLASS IS SARVESHWAR SIR👌
